@@ -1,0 +1,5 @@
+- 👋 oi, sou estudante isabelly
+- 👀 estou interessada em aprender pensamento computacional
+- 🌱 atualmente estou atualizando sobre pensamento computacional
+- 💞️ pretende colaborar com a materia 
+- 📫gmail fonseca.isabelly@escola.pr.gov.br
